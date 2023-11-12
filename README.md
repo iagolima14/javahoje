@@ -4,4 +4,6 @@
 
 #ÀS - 22:25
 
-mão na massa!
+Uma nova jornada que começa!
+
+"Deus é bom e sua misericordia dura para sempre!"
